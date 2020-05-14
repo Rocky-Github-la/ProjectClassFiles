@@ -6,4 +6,4 @@
 >> 486628702
 ### 注明：加付费群的时候不会得到任何资料，里面都是交过钱的人
 ## 想进群的话
-[支付60元](https://rocky-co.github.io/zhifu-class)
+[支付50元](https://rocky-co.github.io/zhifu/class)
